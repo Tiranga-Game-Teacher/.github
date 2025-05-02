@@ -1,4 +1,4 @@
-# Looking for a Tiranga Game Teacher? Contact now on Telegram (@Annie_Tiranga_Bot)
+# Looking for a Tiranga Game Teacher?
 
 <div align="center">
   <a href="https://t.me/Annie_Tiranga_Bot" target="_blank">
