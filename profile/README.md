@@ -7,7 +7,11 @@
          style="max-width: 100%; height: auto;">
   </a>
 </div>
-
+<p align="center">
+  <a href="https://tirangainvitecode.in/tiranga" target="_blank">
+    <img src="https://media-hosting.imagekit.io/f32b0671b0b746ab/Tiranga-Game-Invite-Code-%E2%80%93-2757419478643-to-Get-%E2%82%B9500-Real-Cash-Bonus-Only-for-New-Users--05-03-2025_02_57_AM.png?Expires=1840829421&Key-Pair-Id=K2ZIVPTIP2VGHC&Signature=f7omdZYtc1A-7VgZjiTOt6-B-y1GvutfXQLWQW3J3qBT0Ot4AdSjHxk3gQNrutCNXjSdWRxSyaHIOKXG4wgcGO-xxiNAUyOrwFgVFFrCRrb7CO7zdMUX4CX05zi4hq6TkwRuX2P0N-Bm~OlVPF~uO6T5qZLKUlxZAcIAc1qR0R3yOdzPSr4hckGVvcJjSkfAq0mNMzcL12A7W3pb1A-GdXtcAbiEI1IXIgWBaEaZz8-Iqn1SMI3YU7K0b3dNGYSKVygyy1CL5p2lxEpvLhukarqUsngF4arxC6S07UXpj5lmLuacnfq8XZREa0y49078Mn-OWGz-0zgxpHvz~Vs94w__" alt="Tiranga Game Invite Code" style="max-width: 100%; height: auto;">
+  </a>
+</p>
 
 Are you searching for the perfect **Tiranga Game Teacher** to level up your gaming skills and boost your earnings? Look no further! Whether you're a beginner or an experienced player, having a trusted **Tiranga Game Teacher** can make all the difference. With expert strategies, daily guidance, and personalized support, you’ll master the game and play smartly every time.
 
